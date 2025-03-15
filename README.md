@@ -3,7 +3,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1REp2b8J0t7MtIc2Ixm1a5NFE5kNPl1F3/view?usp=sharing](https://drive.google.com/file/d/1REp2b8J0t7MtIc2Ixm1a5NFE5kNPl1F3/view?usp=sharing)
 
-- ⚡ Fun fact **I am a comedian.**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
